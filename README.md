@@ -1,0 +1,1 @@
+W main sa przyklady
